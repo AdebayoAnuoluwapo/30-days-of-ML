@@ -6,3 +6,4 @@
 [Owoeye Philip](https://github.com/nerdyphil)<br/>
 [Ganiu Ibrahim](https://github.com/Oluwatobi17)<br/>
 [Idris Idris](https://github.com/IdrisAdeyemi01)<br/>
+[Adebayo Anuoluwapo](https://github.com/AdebayoAnuoluwapo)</br>
